@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Courses, YT, Class, etc.**
 
-- 💬 Ask me about **Ask anything**
+- 💬 Ask me about **anything**
 
 - 📫 How to reach me **geraldmanongga026@student.unsrat.ac.id**
 
